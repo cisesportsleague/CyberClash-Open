@@ -33,17 +33,17 @@ Tournament contains following stages:
 
 [Registration link](https://www.faceit.com/ru/championship/8530f9ce-f860-49ce-810c-702098bd1d8e/CyberClash%20Open%20%7C%20Qualifier%201)
 
-**Open Qualifier №2 - 2 teams advance to the main stage - 28th of February 2026**
+**Open Qualifier №2 - 2 teams advance to the main stage - 16th of August 2026**
 - Registration will open 8th of August 14:00 CET
 
 [Registration link](https://www.faceit.com/ru/championship/d38b9237-5322-4992-be56-867003c4b7ca/CyberClash%20Open%20%7C%20Qualifier%202)
 
-**Open Qualifier №3 - 2 teams advance to the main stage - 1st of March 2026**
+**Open Qualifier №3 - 2 teams advance to the main stage - 22nd of August 2026**
 - Registration will open 8th of August 14:00 CET
 
 [Registration link](https://www.faceit.com/ru/championship/732947dc-2d91-4856-9ef7-5a852dbadc46/CyberClash%20Open%20%7C%20Qualifier%203)
 
-**Open Qualifier №4 - 2 teams advance to the main stage - 2nd of March 2026** 
+**Open Qualifier №4 - 2 teams advance to the main stage - 23rd of August 2026** 
 - Registration will open 8th of August 14:00 CET
 
 [Registration link](https://www.faceit.com/ru/championship/9647d5cc-fdf1-4881-836c-41d765988090/CyberClash%20Open%20%7C%20Qualifier%204)
